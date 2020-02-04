@@ -42,3 +42,4 @@ ___
 
 I starting to learn english in time when i went at school. But most experience for me I got when I learning it at last  2 years. My hobby reading different webnovel and most from it in english. Because it's one from popular language how not's strange. After that i playing at games with english subs. My goal learn it at good level where i can to speak free with english community.
 
+Added some info
